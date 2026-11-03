@@ -19,4 +19,4 @@
 5. Transfira para uma tigela e misture a farinha.
 6. Acrescente o fermento e misture delicadamente.
 7. Despeje a massa na forma.
-8. Asse até dourar e um palito inserido no centro sair limpo.
+8. Asse por aproximadamente 35 a 45 minutos, até dourar e um palito inserido no centro sair limpo. O tempo pode variar conforme o forno e a forma.
