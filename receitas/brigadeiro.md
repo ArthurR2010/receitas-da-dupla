@@ -13,7 +13,8 @@
 1. Coloque o leite condensado, o chocolate em pó e a manteiga
    em uma panela.
 2. Misture antes de ligar o fogo.
-3. Cozinhe em fogo baixo, mexendo sempre.
+3. Cozinhe em fogo baixo, mexendo sempre e passando a espátula
+   pelo fundo e pelas laterais da panela.
 4. Retire do fogo quando a mistura engrossar e começar
    a desgrudar do fundo da panela.
 5. Transfira para um prato untado.
